@@ -12,4 +12,6 @@ https://www.bleepingcomputer.com/news/security/an-8-mess-twitter-blue-verified-a
 
 I keep forgetting to tell my friends to come with me to that mausoleum...
 
+I will remind them once, don't worry.
+
 Hope they will enjoy! 
