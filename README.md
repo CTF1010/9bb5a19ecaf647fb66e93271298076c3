@@ -14,4 +14,4 @@ I keep forgetting to tell my friends to come with me to that german mausoleum...
 Alexa, make a reminder to run everyday at 1 p.m. to tell my friends about this.
 
 Shh... I still forgot to list the challenge 
-https://drive.google.com/uc?export=download&id=1tQePz6rgTl9QWfgy2Uzviilk7Vyfo-pE
+Should't have put it here though
