@@ -10,8 +10,6 @@ https://www.bleepingcomputer.com/news/security/an-8-mess-twitter-blue-verified-a
 
 ### Oh, of course I forgot something
 
-I keep forgetting to tell my friends to come with me to that german mausoleum...
-Alexa, make a reminder to run everyday at 1 p.m. to tell my friends about this.
+I keep forgetting to tell my friends to come with me to that mausoleum...
 
-Shh... I still forgot to list the challenge 
-Should't have put it here though
+Hope they will enjoy! 
